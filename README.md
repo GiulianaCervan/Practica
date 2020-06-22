@@ -3,5 +3,5 @@
 2. Aaron
 3. Cristian (Giuli is peace)
 4. Leonardo
-5. Renzo
+5. Renzo ya tengo el proyecto terminado
 6. Facuuuuuuuu
